@@ -1,0 +1,1 @@
+# HTML bolüm sonu çaluışması
